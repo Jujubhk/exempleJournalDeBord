@@ -13,7 +13,7 @@ Honnêtement, j'ai toujours voulue être un YouTuber mais, je sais que qu'il a d
 les film comme développeur sera intéressant aussi.
 
 ### Identification
-Un artiste dont qui m'inspire est YouTuber du nom Berleezy et la raison qu'il est dans la profession depuis longtemps mais il fait juste 
+Un artiste dont qui m'inspire est YouTuber du nom Berleezy et la raison c'est qu'il est dans la profession depuis longtemps mais il fait juste 
 des vidéos et joue a des jeux dont il aime. En étant lui-même pour plusieurs années, il a créer un fan-base loyal et ayant le même sens d'humour que lui, 
 quelques choses dont je souhaite réaliser.
 
