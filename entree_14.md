@@ -1,4 +1,9 @@
 # Entrée 14
 ## Rétrospective de la session
 
-En 8 à 12 lignes; écris un retour sur ta session. Entre le cours 1 et aujourd'hui, quelles découvertes as-tu faites sur le domaine du multimédia? As-tu découvert un nouveau métier qui pourrait t'intéresser? As-tu découvert un nouvel artiste qui t'a inspiré? Pour quel type d'entreprise préférerais-tu travailler? Est-ce qu'un des domaines du multimédia t'intéresse plus que les autres? Est-ce que tu as préféré une sortie ou une conférence? 
+La session est terminée et pour de vrai, thank god. Sa c'est passer vite et j'espère que sa va être comme sa pour 
+toute mes sessions. Par contre, j'ai beaucoup appris et je suis reconnaissant pour toutes mes professeures. Le cours 
+dont j'avais dit que j'était le plus intéressé était l'illustration numérique et mon opinion reste le même. J'espère perfectionner 
+mes skills de photoshop pour le futur. Malheureusement, j'ai pas trouver un autre artiste à qui m'inspirer, par contre, après mon
+expérience avec le Photoshop, je vais commencer à regarder toutes sortent de projet d'illustration avec un attention car maintenant, je sais 
+comment c'est difficile de faire ce qu'un développeur fait.
